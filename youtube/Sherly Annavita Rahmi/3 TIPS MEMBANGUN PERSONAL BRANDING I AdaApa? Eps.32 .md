@@ -4,7 +4,7 @@ Sesaat saya kepikiran tetantang
 
 saya menemukan ini dan saya ikat dengan menulisnya:  
 
-[![Alt text](https://img.youtube.com/vi/vTGV59aaCJw/0.jpg)](https://www.youtu.be/vTGV59aaCJw)
+[![Video Resource](https://img.youtube.com/vi/vTGV59aaCJw/0.jpg)](https://www.youtube.com/watch?v=vTGV59aaCJw)
 
 # Apa itu personal branding?  
 
