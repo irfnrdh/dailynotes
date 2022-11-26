@@ -4,6 +4,8 @@ Sesaat saya kepikiran tetantang
 
 saya menemukan ini dan saya ikat dengan menulisnya:  
 
+[![Alt text](https://img.youtube.com/vi/vTGV59aaCJw/0.jpg)](https://www.youtu.be/vTGV59aaCJw)
+
 # Apa itu personal branding?  
 
 Sederhananya Personal Branding adalah sebuah seni membentuk perspektif orang lain terhadap diri kita. Kita tidak bisa mengontrol persepsi orang lain tetapi kita bisa mengarahkan persepsi orang lain terhadap diri kita. 
