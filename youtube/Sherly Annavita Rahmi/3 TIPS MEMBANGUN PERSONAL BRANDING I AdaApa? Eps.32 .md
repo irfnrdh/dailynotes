@@ -77,4 +77,6 @@ Dalam menunjukan karya atau kemampuan diri ini tentu ada teknik-tekniknya lagi, 
 
 dengan menyelesaikan masalah sosial yang ada disekitar kita, dilingkungan kita, diwilayah kita, dinegara kita maka dengan sendirinya persepsi publik itu bakal terbentuk dan jauh lebih bertahan lama ada atau tidak adanya kita kedepannya. Sosok boleh berganti, namun warisan dan nilai tentu akan dibawa mati. Maka pastikan personal branding kita bukan sekedar untuk kepentingan sesaat namun justru untuk jangka panjang.
 
-Hal yang paling sulit adalah ketika sering berfikir bahwa kita tidak bisa.
+> Hal yang paling sulit adalah ketika sering berfikir bahwa kita tidak bisa.  
+
+> jangan bertahu tentang mu karena mereka tidak butuh itu.
