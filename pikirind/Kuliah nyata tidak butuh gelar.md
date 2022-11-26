@@ -1,4 +1,3 @@
-Sebentar lagi aku dropout  
 dengan segudang cerita yang sulit untuk dijelaskan  
 tentu akan mengecewakan banyak orang yang telah mendukung  
 
